@@ -1,5 +1,6 @@
 
-<img width="736" height="414" alt="image_2026-09-01_193241390" src="https://github.com/user-attachments/assets/9a69b988-2144-4845-a992-943d6ddc5e3b" />
+<img width="735" height="490" alt="image_2026-09-01_193358673" src="https://github.com/user-attachments/assets/9d294de4-57d1-4b00-b3d0-461306cdf85d" />
+
 
 <!--
 **beartail33/beartail33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
