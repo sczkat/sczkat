@@ -1,3 +1,4 @@
+
 <img width="736" height="414" alt="image_2026-09-01_193241390" src="https://github.com/user-attachments/assets/9a69b988-2144-4845-a992-943d6ddc5e3b" />
 
 <!--
