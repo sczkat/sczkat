@@ -28,7 +28,7 @@ ata | straw
 <br>
 
 <br>
-<img width="800" height="40" alt="tumblr_bfac01a74295dca0b3f05198db92e487_8ab0e45d_2048" src="https://github.com/user-attachments/assets/0e5a7971-d92c-4497-9bf6-cbc66bbc2d37" />
+<img width="400" height="20" alt="tumblr_bfac01a74295dca0b3f05198db92e487_8ab0e45d_2048" src="https://github.com/user-attachments/assets/0e5a7971-d92c-4497-9bf6-cbc66bbc2d37" />
 <br>
 𐂯 
 
