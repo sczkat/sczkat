@@ -3,6 +3,8 @@
 
 <img width="800" height="40" alt="tumblr_bfac01a74295dca0b3f05198db92e487_8ab0e45d_2048" src="https://github.com/user-attachments/assets/0e5a7971-d92c-4497-9bf6-cbc66bbc2d37" />
 <br>
+<img width="60" height="18" alt="image_2026-09-02_205545907" src="https://github.com/user-attachments/assets/78c8e155-e9ff-41e7-8b2c-4221a9b3dbdf" />
+
 ‎<br>
 c*h freely no need to ask ^_^
 <br>
