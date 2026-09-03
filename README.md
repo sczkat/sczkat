@@ -17,7 +17,6 @@ straw | pronouns (wip ok)
 <br>
 <img width="336" height="336" alt="image_2026-09-02_205949355" src="https://github.com/user-attachments/assets/89ff399a-f416-4417-b771-5d4542472e4f" />
 <br>
-![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&theme=spotify&count=1&width=370&radius=12&header=0&time=0&logo=0&now_playing=0&profile=off&bg_color=cbc3c3&text_color=655858)
 <br>
 ' "𝐈𝐭'𝐬 𝐨𝐤𝐚𝐲 𝐭𝐨 𝐛𝐞 𝐚𝐟𝐫𝐚𝐢𝐝, 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰.
 <br>
@@ -28,5 +27,6 @@ straw | pronouns (wip ok)
 <br>
 <img width="30" height="30" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
 <br>
-
+<br>
+![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&theme=spotify&count=1&width=370&radius=12&header=0&time=0&logo=0&now_playing=0&profile=off&bg_color=f0f0f0&text_color=7a6666)
 </div>
