@@ -1,5 +1,8 @@
 <div align="center">
 
+<img width="99" height="56" alt="tumblr_4e6d2958492a11c32dcdf5837e90ac80_5f77457b_100" src="https://github.com/user-attachments/assets/080217e2-cdd5-4691-8294-9541f32ccad5" />
+<img width="99" height="56" alt="tumblr_0ca1482cd922a05b8fac909e213510b7_96846d88_100" src="https://github.com/user-attachments/assets/fc261a2b-d914-444a-87b3-b78e65657a25" />
+<img width="99" height="56" alt="tumblr_1198181209ce125e894ddc15db645992_6e1cacbe_100" src="https://github.com/user-attachments/assets/3fe9a50b-8b08-4a7a-95e4-fb88aaa4fe3b" />
 
 <img width="336" height="336" alt="image_2026-09-02_205949355" src="https://github.com/user-attachments/assets/89ff399a-f416-4417-b771-5d4542472e4f" />
 
@@ -12,9 +15,7 @@ c*h freely no need to ask  :-)
 ata | straw
 <br>
 <br>
-<img width="99" height="56" alt="tumblr_4e6d2958492a11c32dcdf5837e90ac80_5f77457b_100" src="https://github.com/user-attachments/assets/080217e2-cdd5-4691-8294-9541f32ccad5" />
-<img width="99" height="56" alt="tumblr_0ca1482cd922a05b8fac909e213510b7_96846d88_100" src="https://github.com/user-attachments/assets/fc261a2b-d914-444a-87b3-b78e65657a25" />
-<img width="99" height="56" alt="tumblr_1198181209ce125e894ddc15db645992_6e1cacbe_100" src="https://github.com/user-attachments/assets/3fe9a50b-8b08-4a7a-95e4-fb88aaa4fe3b" />
+<img width="336" height="336" alt="image_2026-09-02_205949355" src="https://github.com/user-attachments/assets/89ff399a-f416-4417-b771-5d4542472e4f" />
 <br>
 <br>
 ' "𝐈𝐭'𝐬 𝐨𝐤𝐚𝐲 𝐭𝐨 𝐛𝐞 𝐚𝐟𝐫𝐚𝐢𝐝, 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰.
