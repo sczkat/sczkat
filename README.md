@@ -6,9 +6,9 @@
 <br>
 
 ‎<br>
-c*h freely no need to ask ^_^
+c*h freely no need to ask :-)
 <br>
-♡ ata | straw
+ata | straw
 <br>
 <br>
 <img width="99" height="56" alt="tumblr_4e6d2958492a11c32dcdf5837e90ac80_5f77457b_100" src="https://github.com/user-attachments/assets/080217e2-cdd5-4691-8294-9541f32ccad5" />
