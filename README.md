@@ -27,7 +27,6 @@ straw | pronouns (wip ok)
 <br>
 <img width="30" height="30" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
 <br>
-
-![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&theme=transparent&count=1&width=330&header=0&time=0&logo=0&now_playing=0&profile=off)
+![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&theme=spotify&count=1&width=480&header=0&time=0&logo=0&now_playing=0&profile=off&bg_color=cbc3c3&text_color=655858)
 
 </div>
