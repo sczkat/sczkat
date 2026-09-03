@@ -1,5 +1,5 @@
 <div align="center">
-<img width="287" height="26" alt="image_2026-09-02_203432644" src="https://github.com/user-attachments/assets/5ab191cd-10c4-40ff-b9c1-ab2f31f50e12" />
+<img width="287" height="126" alt="image_2026-09-02_203432644" src="https://github.com/user-attachments/assets/5ab191cd-10c4-40ff-b9c1-ab2f31f50e12" />
 <br>
 ‎<br>
 c*h freely no need to ask ^_^
