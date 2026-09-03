@@ -17,7 +17,7 @@ ata | straw
 <br>
 <img width="336" height="336" alt="image_2026-09-02_205949355" src="https://github.com/user-attachments/assets/89ff399a-f416-4417-b771-5d4542472e4f" />
 <br>
-
+ ‎▗▬/̄͆̅ ̎ ̎̿͞͞͞͞͞͞͞͞ι̚━─ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⁺ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ♥︎̼̻   ‎ ‎ ‎ 
 <br>
 ' "𝐈𝐭'𝐬 𝐨𝐤𝐚𝐲 𝐭𝐨 𝐛𝐞 𝐚𝐟𝐫𝐚𝐢𝐝, 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰.
 <br>
