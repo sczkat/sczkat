@@ -23,7 +23,7 @@ c*h freely no need to ask ^_^
 <br>
 <img width="30" height="30" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
 <br>
-<img width="436" height="50" alt="leon blinkie" src="https://github.com/user-attachments/assets/40d739f6-e82d-41d5-a2e0-76cae4426f7e" />
+<img width="336" height="30" alt="leon blinkie" src="https://github.com/user-attachments/assets/40d739f6-e82d-41d5-a2e0-76cae4426f7e" />
 
 <br>
 <img width="2048" height="70" alt="tumblr_bfac01a74295dca0b3f05198db92e487_8ab0e45d_2048" src="https://github.com/user-attachments/assets/0e5a7971-d92c-4497-9bf6-cbc66bbc2d37" />
