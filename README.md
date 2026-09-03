@@ -1,4 +1,6 @@
 <div align="center">
+<img width="735" height="490" alt="image_2026-09-02_203839347" src="https://github.com/user-attachments/assets/efc3a7ee-80fc-46de-8f89-9a9feba12057" />
+
 <img width="250" height="150" alt="image_2026-09-02_203432644" src="https://github.com/user-attachments/assets/5ab191cd-10c4-40ff-b9c1-ab2f31f50e12" />
 <br>
 ‎<br>
@@ -21,7 +23,8 @@ c*h freely no need to ask ^_^
 <br>
 <img width="30" height="30" alt="68747470733a2f2f66696c652e67617264656e2f61686d68747435353646537757414b412f74756d626c725f35306231623531313232666266303762303139393562633732303738646232665f37313332323132375f37352e77656270" src="https://github.com/user-attachments/assets/26af4ef0-f33a-454b-817d-86f661edd56f" />
 <br>
-
+<img width="587" height="326" alt="image" src="https://github.com/user-attachments/assets/9e842055-ab62-49d4-874d-83de03c60b4f" />
+<br>
 
   <img width="2048" height="70" alt="tumblr_bfac01a74295dca0b3f05198db92e487_8ab0e45d_2048" src="https://github.com/user-attachments/assets/0e5a7971-d92c-4497-9bf6-cbc66bbc2d37" />
 <br>
