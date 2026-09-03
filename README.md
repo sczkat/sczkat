@@ -12,7 +12,7 @@
 ‎<br>
 c*h freely no need to ask  :-)
 <br>
-straw | [pronouns]([https://www.example.com](https://en.pronouns.page/@sickmofo)) (wip ok)
+straw | [pronouns]([https://www.example.com](https://en.pronouns.page/@sickmofo) (wip ok)
 <br>
 <br>
 <img width="336" height="336" alt="image_2026-09-02_205949355" src="https://github.com/user-attachments/assets/89ff399a-f416-4417-b771-5d4542472e4f" />
