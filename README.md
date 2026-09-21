@@ -1,5 +1,5 @@
 <div align="center">
-<img width="700" height="290" alt="image_2026-09-21_183354076" src="https://github.com/user-attachments/assets/9e8a568c-9366-4efc-a507-c90cb8117b5c" />
+<img width="700" height="270" alt="image_2026-09-21_183354076" src="https://github.com/user-attachments/assets/9e8a568c-9366-4efc-a507-c90cb8117b5c" />
 <br>
   <br>
 ꒰❝ 𝐑𝐀𝐈𝐍 𝐎𝐑 𝐒𝐇𝐈𝐍𝐄, 𝐘𝐎𝐔'𝐑𝐄 𝐆𝐎𝐈𝐍𝐆 𝐃𝐎𝐖𝐍! ❞✚.
@@ -12,7 +12,7 @@
 
 <br>
 <br>
-<img width="700" height="280" alt="image_2026-09-21_182929149" src="https://github.com/user-attachments/assets/7f3995dc-f541-4d72-9cb6-6ec621af0b9c" />
+<img width="700" height="270" alt="image_2026-09-21_182929149" src="https://github.com/user-attachments/assets/7f3995dc-f541-4d72-9cb6-6ec621af0b9c" />
 
 <br>
 </div>
