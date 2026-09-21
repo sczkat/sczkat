@@ -8,7 +8,24 @@
   <img width="700" height="424" alt="image_2026-09-21_184130485" src="https://github.com/user-attachments/assets/f9d2d7fb-0257-4f44-a432-8a2223fdeac7" />
 
 <img width="700" height="90" alt="image_2026-09-21_184334567" src="https://github.com/user-attachments/assets/5382534f-a4f0-4bc7-98de-f3fd7dae36a2" />
+<br>
+<br>
+‧˚꒰ frank⠀₎₎⠀16⠀₎₎⠀chinese⠀₎₎⠀he/him⠀:˖
+<br>
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
+<br>
+.⠀straw (wip)⠀.⠀pronouns⠀.⠀
+<br>
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
+<br>
+c*h freely no need to ask :-)
+<br>
+<img width="2048" height="112" alt="image_2026-09-21_185022971" src="https://github.com/user-attachments/assets/6e8f4dca-81e3-4a1a-8b36-fb3f7d2fcc30" />
+<br>
+<img width="600" height="42" alt="tumblr_17865a12bf943ca9465a857b15285cfe_838f4c1c_640" src="https://github.com/user-attachments/assets/83be3a8c-b6e2-4f7d-8400-8ef97d5b5792" />
 
+<br>
+<br>
 
 <br>
 <br>
