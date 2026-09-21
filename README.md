@@ -21,9 +21,6 @@
 c*h freely no need to ask :-)
 <br>
 <br>
-![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=q37rkcovd02nha9ny4hisgp35&count=1&width=350&radius=15&header=0&time=0&progress=0&explicit=0&profile=off&bg_color=0f110e&text_color=8b9c7c)
-<br>
-<br>
 <img width="700" height="35" alt="image_2026-09-21_185022971" src="https://github.com/user-attachments/assets/6e8f4dca-81e3-4a1a-8b36-fb3f7d2fcc30" />
 <br>
 <img width="700" height="50" alt="tumblr_17865a12bf943ca9465a857b15285cfe_838f4c1c_640" src="https://github.com/user-attachments/assets/83be3a8c-b6e2-4f7d-8400-8ef97d5b5792" />
