@@ -14,7 +14,7 @@
 <br>
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 <br>
-.⠀straw (wip)⠀.⠀pronouns⠀.⠀
+.⠀straw⠀.⠀[pronouns](https://en.pronouns.page/@sickmofo)⠀.⠀(wip ok)
 <br>
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 <br>
