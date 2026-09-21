@@ -1,5 +1,5 @@
 <div align="center">
-<img width="500" height="200" alt="image_2026-09-21_183354076" src="https://github.com/user-attachments/assets/9e8a568c-9366-4efc-a507-c90cb8117b5c" />
+<img width="500" height="180" alt="image_2026-09-21_183354076" src="https://github.com/user-attachments/assets/9e8a568c-9366-4efc-a507-c90cb8117b5c" />
 <br>
   <br>
 ꒰❝ 𝐑𝐀𝐈𝐍 𝐎𝐑 𝐒𝐇𝐈𝐍𝐄, 𝐘𝐎𝐔'𝐑𝐄 𝐆𝐎𝐈𝐍𝐆 𝐃𝐎𝐖𝐍! ❞✚.
