@@ -10,7 +10,11 @@
 <img width="700" height="90" alt="image_2026-09-21_184334567" src="https://github.com/user-attachments/assets/5382534f-a4f0-4bc7-98de-f3fd7dae36a2" />
 <br>
 <br>
+<img width="80" height="80" alt="tumblr_2a878b45d5be1cb98dccc466d83c6198_f4dc483d_100" src="https://github.com/user-attachments/assets/8a3205a6-f805-4028-8e56-52005aad55e5" />
+
 ‧˚꒰ frank⠀₎₎⠀16⠀₎₎⠀chinese⠀₎₎⠀he/him⠀:˖
+<img width="50" height="50" alt="tumblr_a90d5f0391d50bd36e29b3188a364e58_78122eed_75" src="https://github.com/user-attachments/assets/4b6cdd73-00fe-409e-ad38-6f0b2295d71e" />
+
 <br>
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 <br>
