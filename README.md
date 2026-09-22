@@ -5,9 +5,9 @@
 ꒰❝ 𝐑𝐀𝐈𝐍 𝐎𝐑 𝐒𝐇𝐈𝐍𝐄, 𝐘𝐎𝐔'𝐑𝐄 𝐆𝐎𝐈𝐍𝐆 𝐃𝐎𝐖𝐍! ❞✚.
 <br>
 <br>
-  <img width="600" height="414" alt="image_2026-09-21_184130485" src="https://github.com/user-attachments/assets/f9d2d7fb-0257-4f44-a432-8a2223fdeac7" />
+  <img width="600" height="90" alt="image_2026-09-21_184130485" src="https://github.com/user-attachments/assets/f9d2d7fb-0257-4f44-a432-8a2223fdeac7" />
 
-<img width="600" height="80" alt="image_2026-09-21_184334567" src="https://github.com/user-attachments/assets/5382534f-a4f0-4bc7-98de-f3fd7dae36a2" />
+<img width="600" height="60" alt="image_2026-09-21_184334567" src="https://github.com/user-attachments/assets/5382534f-a4f0-4bc7-98de-f3fd7dae36a2" />
 <br>
 <br>
 <img width="25" height="25" alt="tumblr_58b2c8dc8e14c84613fa0b54cc3d4b62_b7003639_100" src="https://github.com/user-attachments/assets/8db6415f-e785-4fec-99a8-6885cc4f050d" /> ‧˚꒰ frank⠀₎₎⠀16⠀₎₎⠀chinese⠀₎₎⠀he/him⠀:˖ <img width="25" height="25" alt="tumblr_a90d5f0391d50bd36e29b3188a364e58_78122eed_75" src="https://github.com/user-attachments/assets/4b6cdd73-00fe-409e-ad38-6f0b2295d71e" />
