@@ -5,7 +5,7 @@
 ꒰❝ 𝐑𝐀𝐈𝐍 𝐎𝐑 𝐒𝐇𝐈𝐍𝐄, 𝐘𝐎𝐔'𝐑𝐄 𝐆𝐎𝐈𝐍𝐆 𝐃𝐎𝐖𝐍! ❞✚.
 <br>
 <br>
-  <img width="600" height="110" alt="image_2026-09-21_184130485" src="https://github.com/user-attachments/assets/f9d2d7fb-0257-4f44-a432-8a2223fdeac7" />
+  <img width="600" height="310" alt="image_2026-09-21_184130485" src="https://github.com/user-attachments/assets/f9d2d7fb-0257-4f44-a432-8a2223fdeac7" />
 
 <img width="600" height="60" alt="image_2026-09-21_184334567" src="https://github.com/user-attachments/assets/5382534f-a4f0-4bc7-98de-f3fd7dae36a2" />
 <br>
