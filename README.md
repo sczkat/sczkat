@@ -2,6 +2,7 @@
 <img width="600" height="225" alt="image_2026-09-21_183354076" src="https://github.com/user-attachments/assets/9e8a568c-9366-4efc-a507-c90cb8117b5c" />
 <br>
 <br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=29&duration=4000&pause=20&color=5B663F48&center=true&vCenter=true&width=435&lines=%E2%9D%9D%F0%9D%90%91%F0%9D%90%80%F0%9D%90%88%F0%9D%90%8D+%F0%9D%90%8E%F0%9D%90%91+%F0%9D%90%92%F0%9D%90%87%F0%9D%90%88%F0%9D%90%8D%F0%9D%90%84%2C;%F0%9D%90%98%F0%9D%90%8E%F0%9D%90%94'%F0%9D%90%91%F0%9D%90%84+%F0%9D%90%86%F0%9D%90%8E%F0%9D%90%88%F0%9D%90%8D%F0%9D%90%86+%F0%9D%90%83%F0%9D%90%8E%F0%9D%90%96%F0%9D%90%8D!+%E2%9D%9E" alt="Typing SVG" /></a>
 ꒰❝ 𝐑𝐀𝐈𝐍 𝐎𝐑 𝐒𝐇𝐈𝐍𝐄, 𝐘𝐎𝐔'𝐑𝐄 𝐆𝐎𝐈𝐍𝐆 𝐃𝐎𝐖𝐍! ❞✚.
 <br>
 <br>
