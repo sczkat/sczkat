@@ -11,13 +11,16 @@
 <br>
 <br>
 <img width="25" height="25" alt="tumblr_58b2c8dc8e14c84613fa0b54cc3d4b62_b7003639_100" src="https://github.com/user-attachments/assets/8db6415f-e785-4fec-99a8-6885cc4f050d" /> ‧˚꒰ frank⠀₎₎⠀16⠀₎₎⠀chinese⠀₎₎⠀he/him⠀:˖ <img width="25" height="25" alt="tumblr_a90d5f0391d50bd36e29b3188a364e58_78122eed_75" src="https://github.com/user-attachments/assets/4b6cdd73-00fe-409e-ad38-6f0b2295d71e" />
-
+<br>
 <br>
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
+<br>
 <br>
 .⠀strawpage (wip ok)⠀.⠀
 <br>
+<br>
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
+<br>
 <br>
 c*h freely no need to ask :-)
 <br>
