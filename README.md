@@ -27,8 +27,7 @@ c*h freely no need to ask :-)
 <br>
 <img width="600" height="25" alt="image_2026-09-21_185022971" src="https://github.com/user-attachments/assets/6e8f4dca-81e3-4a1a-8b36-fb3f7d2fcc30" />
 <br>
-<img width="600" height="30" alt="tumblr_17865a12bf943ca9465a857b15285cfe_838f4c1c_640" src="https://github.com/user-attachments/assets/83be3a8c-b6e2-4f7d-8400-8ef97d5b5792" />
-
+<img width="600" height="50" alt="tumblr_17865a12bf943ca9465a857b15285cfe_838f4c1c_640" src="https://github.com/user-attachments/assets/83be3a8c-b6e2-4f7d-8400-8ef97d5b5792" />
 <img width="600" height="160" alt="image_2026-09-21_182929149" src="https://github.com/user-attachments/assets/7f3995dc-f541-4d72-9cb6-6ec621af0b9c" />
 
 <br>
